@@ -75,4 +75,4 @@ I believe *consistency beats talent* 🚀
 ---
 
 ## 🌐 Connect With Me
-- 📧 Email: (add your
+- 📧 Email: kirtanyadav24@gmail.com
